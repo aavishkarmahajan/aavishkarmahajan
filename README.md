@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything of above mentioned interests
 - 📫 How to reach me - aavishkarm36@gmail.com
 - 😄 Pronouns: Sincere, Hard-Working
-- ⚡ Fun fact: Cant think of any !!! Isn't that funny!!!
+- ⚡ Fun fact: I want to be Spiderman!!!
 
 <!---
 aavishkarmahajan/aavishkarmahajan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
